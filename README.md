@@ -6,7 +6,7 @@ to environmental hazards, and how does that connect to chronic
 illness rates in those same neighborhoods?
 
 ## Why It Matters
-Working as an Administrative Assistant at Equus Workforce Solutions 
+Working as an Administrative Assistant at a Workforce development organization 
 in Chicago, I saw firsthand how environmental and economic hardship 
 overlap in certain communities. I wanted to understand the data 
 behind those patterns.
